@@ -1,4 +1,3 @@
-# Finding job
 - 👋 Hi, I’m @felixfeng33
 - 👀 I’m interested in Plate/Slate
 - 📫 How to reach me Mail 3300739800@qq.com
