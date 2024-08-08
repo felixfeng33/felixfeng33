@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Felix Feng live in China
 - 👀 I’m interested in Plate/Slate
-- 📫 How to reach me Mail 3300739800@qq.com
+- 📫 How to reach me Mail felixfeng33@gmail.com
 
 ---
 
