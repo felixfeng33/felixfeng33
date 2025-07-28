@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Felix Feng live in China
+- 👋 Hi, I’m Felix Feng
 - 👀 I’m interested in Plate/Slate
 - 📫 How to reach me Mail felixfeng33@gmail.com
 
